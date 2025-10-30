@@ -1,2 +1,1 @@
-# f-llm-temas-
-dizipaslllkhnhh
+FİLM TEMAmaz knk
